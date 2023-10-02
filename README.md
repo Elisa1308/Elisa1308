@@ -1,16 +1,14 @@
-### Hi there 👋
+# 🖤 Olá! Seja bem-vindo ao meu perfil! 🕷️
 
-<!--
-**Elisa1308/Elisa1308** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ Meu nome é **Elisa Ferreira Dornelles Vargas**! Entretanto, você pode me chamar de **Foguete 🚀😽** 
+ 
+✿༉‧₊˚📘 ❀༉‧₊˚. - Estou estudando na [Alura](www.alura.com.br)
 
-Here are some ideas to get you started:
+₊╰╮❛💙✦ Estou me desenvolvendo mais a cada curso!! ﹒﹒
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+≡📋・Pretendo saber mais sobre esses assuntos de tecnologia; 
+
+✩°｡⋆⸜ 🎧✮ Se estiver mais interessado em me conhecer, siga me no Instagram: **elisa._.https _**
+
+**Espero que sejamos belos amigos! Obrigada por se interessar em meu perfil!**
+![](http://4.bp.blogspot.com/-PAUjnkfNENc/VrAPLTl1d4I/AAAAAAAAApk/ofdYcuQyxx8/s1600/tumblr_nqqbdpFKFm1r5a08so2_r1_500.gif)
