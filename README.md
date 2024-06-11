@@ -8,7 +8,7 @@
 
 ≡📋・Pretendo saber mais sobre esses assuntos de tecnologia; 
 
-✩°｡⋆⸜ 🧨 ✮ Se estiver mais interessado em me conhecer, siga me no Instagram: **elisa._.https _**
+✩°｡⋆⸜ 🧨 ✮ Se estiver mais interessado em me conhecer, siga me no Instagram: **primata_jubilei**
 
 **Espero que sejamos belos amigos! Obrigada por se interessar em meu perfil!**
 ![](https://media.tenor.com/CONVZeMzC5oAAAAC/gojo-manga.gif)
