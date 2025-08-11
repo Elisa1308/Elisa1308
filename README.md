@@ -11,4 +11,4 @@
 ✩°｡⋆⸜ 🧨 ✮ Se estiver mais interessado em me conhecer, siga me no Instagram: **primata_jubilei**
 
 **Espero que sejamos belos amigos! Obrigada por se interessar em meu perfil!**
-![](https://tenor.com/pt-BR/view/seth-ennead-gif-13625448545231853398)
+![](https://media1.tenor.com/m/rhEJC52XrmsAAAAC/till-ivan.gif)
